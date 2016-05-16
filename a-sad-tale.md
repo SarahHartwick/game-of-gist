@@ -4,5 +4,4 @@ Regent.  He is surely honorable and will lead a long and prosperous life.
 
 Ned ended up getting his head cut off and he is not living anymore.
 
-Joffrey Baratheon was the one to do Ned in, but his story was only about to
-being, and let me assure you he will DEFINITELY NOT DIE!
+changes changes
